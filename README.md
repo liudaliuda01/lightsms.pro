@@ -1,4 +1,7 @@
-https://lightsms.pro[](https://lightsms.pro/?_referrer=github002)
+# 全球实卡接码：免费接验证码、租用手机号、虚拟手机号及免费打电话!
+
+平台网址[https://lightsms.pro](https://lightsms.pro/?_referrer=github002)
+
 <img width="1680" alt="C1" src="https://github.com/user-attachments/assets/8a389293-20a8-445f-82c9-a87e63a0291e">
 
 全球实卡接码 
